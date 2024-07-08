@@ -10,3 +10,4 @@ Working on this project has been an incredible learning experience, allowing me 
 Stay tuned for more updates and insights from my journey at CodexCue! 
 FIGMA LINK FOR BETTER QUALITY:
 https://lnkd.in/e-BmQZ4j
+Linkedin Link: https://www.linkedin.com/posts/tehrim-maqbool-8800392b1_toms-activity-7215736702739378176-Lyyr?utm_source=share&utm_medium=member_desktop
